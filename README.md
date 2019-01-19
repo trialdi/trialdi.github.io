@@ -1,1 +1,0 @@
-# trialdi.github.io
